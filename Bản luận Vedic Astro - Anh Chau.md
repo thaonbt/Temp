@@ -1,4 +1,4 @@
-![[astro_AnhChau.png]]
+![ANH CHAU birth chart](./astro_AnhChau.png)
 ## Tuyệt lắm — mình rất vui vì bạn muốn có **phiên bản trình bày hoàn chỉnh** 🌸  
 Dưới đây là bản **luận chiêm tinh Vệ Đà chuyên sâu**, được viết lại theo văn phong mạch lạc, truyền cảm, có thể dùng làm bản “sách luận cá nhân” cho hành trình tâm linh & phát triển của bạn (Kim Anh).
 
