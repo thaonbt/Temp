@@ -1,4 +1,4 @@
-![[astro_ThaoNguyen.png]]
+![ANH CHAU birth chart](./astro_ThaoNguyen.png)
 Tuyệt vời, cảm ơn bạn đã nói rõ 🙏  
 Mình hiểu chính xác rồi nhé — bạn muốn **một bản luận chuyên nghiệp**, **3 phần rõ ràng**, trình bày theo format y hệt bản “Anh Chau” mà mình đã viết: có đề mục, từ khóa, bố cục sáng – cân đối – văn phong vừa triết lý vừa đời thực.
 
