@@ -1,4 +1,4 @@
-![[astroVedic_ChangChang.png]]
+![CHANG CHANG birth chart](./astroVedic_ChangChang.png)
 # 🌿 SÁCH LUẬN CHIÊM TINH VỆ ĐÀ CÁ NHÂN
 
 ## Linh Hồn & Hành Trình Tiến Hóa – Thu Trang
